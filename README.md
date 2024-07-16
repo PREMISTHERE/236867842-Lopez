@@ -1,1 +1,1 @@
-Jus₺ a Batch Files
+Just a Batch Files
